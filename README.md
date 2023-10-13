@@ -7,7 +7,7 @@
 
 ⚡ Fun fact: I love trivia & random facts!
 
-📚 Currently Reading: Fried Green Tomatoes at the Whistle Stop Cafe by Fannie Flagg
+📚 Currently Reading: The Sunny Nihilist by Wendy Syfret
 
 
 <!--
